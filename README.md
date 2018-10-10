@@ -1,3 +1,2 @@
 # aninhaclara
 
-sou linda
